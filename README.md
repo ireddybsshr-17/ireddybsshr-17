@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ireddybsshr-17
-- 👀 I’m interested in Data Science and AI/ML
+- 👀 I’m interested in Data Science and Cloud
 - 🌱 I’m currently pursuing my Bachelor's in VIT University
 - 💞️ I’m looking to upgrade my skills on this domain
 - 📫 we can connect on linkedin my username- B Sai Sri Harshitha Reddy
